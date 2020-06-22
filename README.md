@@ -1,2 +1,2 @@
-# Lithium - Github - LITHIUM.ML
+# Lithium - LITHIUM.ML
 
